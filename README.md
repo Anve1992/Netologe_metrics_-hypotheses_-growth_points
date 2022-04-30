@@ -1,1 +1,0 @@
-# Netologe_metrics_-hypotheses_-growth_points
